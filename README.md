@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @cnsolarcharger
+- 👋 Hi, I’m @cnsolarcharger,www.cnsolarcharger.com, also named Lynsa Solar in short.
 - 👀 I’m interested in solar panel,solar generator,portable power station,folding & flexible solar panel buyers.
 - 🌱 I’m currently learning solar panel,solar generator,portable power station,folding & flexible solar panel manufacturer.
 - 💞️ I’m looking to collaborate on solar panel,solar generator,portable power station,folding & flexible solar panel.
